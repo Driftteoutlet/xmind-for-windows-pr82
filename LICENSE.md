@@ -1,4 +1,4 @@
-
+Enhance XMind for Windows with XMind for Windows exclusive Extension: templates & presentation-mode, the #1 extension. Includes templates and presentation-mode for a smoother and
 
 
 
